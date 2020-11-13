@@ -4,11 +4,12 @@ Expand your product line
 
 Brand in new Markets
 
+Acquire other business
+
 Hire a busienss coach
 
 
 Fuel in engine
-
 Marketing engine
 Marketing analysia
 Copy the startegies are syccessful and improve the one that are not
